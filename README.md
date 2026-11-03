@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-16 | [8 | Mars का Karakatva 🔥 Courage, Blood, Energy | मंगल के प्रभाव | Vedic Astrology Explained](https://t.worldgyan.com/videos/P6RpPBdAJ8w) | [Watch on YouTube](https://www.youtube.com/watch?v=P6RpPBdAJ8w) |
+
 | 2025-06-18 | [9 | Venus का Karakatva 💫 Love, Art, Luxury | शुक्र किन चीज़ों का कारक है? Vedic Astrology Facts](https://t.worldgyan.com/videos/xGH1H-Kf53w) | [Watch on YouTube](https://www.youtube.com/watch?v=xGH1H-Kf53w) |
 
 | 2025-06-19 | [10 | Jupiter का Karakatva 📚 Knowledge, Guru, Fortune | बृहस्पति क्या दर्शाता है? Vedic Astrology](https://t.worldgyan.com/videos/MWIepi0l8f4) | [Watch on YouTube](https://www.youtube.com/watch?v=MWIepi0l8f4) |

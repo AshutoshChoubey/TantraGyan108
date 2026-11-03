@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-24 | [26 | 12th House (Vyaya Bhav) in Astrology 🌌 Loss, Moksha, Foreign | कुंडली में व्यय भाव](https://t.worldgyan.com/videos/Ia7Mc3m4uuQ) | [Watch on YouTube](https://www.youtube.com/watch?v=Ia7Mc3m4uuQ) |
+
 | 2025-07-25 | [27 |  💫 27 Nakshatra Secrets  | Nakshatra Lords Table | 27 Nakshatra Lords & Rashi Degrees 🌌](https://t.worldgyan.com/videos/oNvz598daZQ) | [Watch on YouTube](https://www.youtube.com/watch?v=oNvz598daZQ) |
 
 | 2025-07-27 | [28 | 💫 Planetary Drishti Explained | ग्रहों की दृष्टियाँ कैसे काम करती हैं? Mars, Jupiter, Saturn](https://t.worldgyan.com/videos/BmvglqALX0g) | [Watch on YouTube](https://www.youtube.com/watch?v=BmvglqALX0g) |

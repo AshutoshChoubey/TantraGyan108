@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-10 | [20 | 6th House (Shatru Bhav) in Horoscope ⚔️ Enemies, Disease,  Loan and Daily routine  | छठा भाव](https://t.worldgyan.com/videos/wJyIVraEMxQ) | [Watch on YouTube](https://www.youtube.com/watch?v=wJyIVraEMxQ) |
+
 | 2025-07-11 | [21 | 7th House (Vivah Bhav) in Astrology 💍 Marriage, Love, Partnership | विवाह और संबंधों](https://t.worldgyan.com/videos/0GPOJEaq-cE) | [Watch on YouTube](https://www.youtube.com/watch?v=0GPOJEaq-cE) |
 
 | 2025-07-13 | [22 | 8th House (Ayushya Bhav) in Astrology 🕯️ Death, Secrets, Change | आयु, रहस्य और परिवर्तन का भाव](https://t.worldgyan.com/videos/2PcRzJvgAws) | [Watch on YouTube](https://www.youtube.com/watch?v=2PcRzJvgAws) |

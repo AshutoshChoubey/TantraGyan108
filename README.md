@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-15 | [5 |  All 12 Rashi Explained | राशि का राज | 12 राशियों के तत्व, स्वामी और गुण | All Zodiac Signs](https://t.worldgyan.com/videos/MctNJ73fcDI) | [Watch on YouTube](https://www.youtube.com/watch?v=MctNJ73fcDI) |
+
 | 2025-06-15 | [6 | Sun का Karakatva 🔥 | Health, Status, Father, Aatma | सूर्य के राजयोगीय गुण |  Sun Significations](https://t.worldgyan.com/videos/WP4Q2sVAyS0) | [Watch on YouTube](https://www.youtube.com/watch?v=WP4Q2sVAyS0) |
 
 | 2025-06-15 | [7 | Moon का Karakatva 🌙 Mind, Emotion, Mother | चंद्र के रहस्य | Vedic Astrology Insights](https://t.worldgyan.com/videos/_rRDNhOzrK8) | [Watch on YouTube](https://www.youtube.com/watch?v=_rRDNhOzrK8) |

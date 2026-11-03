@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-08-08 | [33 | Mars in Astrology 🔥 मंगल किन Body Parts और Diseases का कारक है? | Medical Astrology Insights](https://t.worldgyan.com/videos/xcHJ7C_85RU) | [Watch on YouTube](https://www.youtube.com/watch?v=xcHJ7C_85RU) |
+
 | 2025-08-10 | [34 | Rahu in Astrology 🐍 राहु Body Parts और Diseases | Hidden Truth of Medical Astrology Rahu](https://t.worldgyan.com/videos/2gPO8lAcoH0) | [Watch on YouTube](https://www.youtube.com/watch?v=2gPO8lAcoH0) |
 
 | 2025-08-11 | [35 | Ketu in Medical Astrology ⚡ केतु किन Body Parts और Diseases से जुड़ा है? | Ketu  Mysteries](https://t.worldgyan.com/videos/1KCkz6axrz8) | [Watch on YouTube](https://www.youtube.com/watch?v=1KCkz6axrz8) |

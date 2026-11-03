@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-20 | [12 | 🌿 बुध का Karakatva 🧠 बुद्धि, वाणी, तर्क | Mercury's Significations in Vedic Astrology](https://t.worldgyan.com/videos/NjHeXxa1BQQ) | [Watch on YouTube](https://www.youtube.com/watch?v=NjHeXxa1BQQ) |
+
 | 2025-06-22 | [13 | Rahu का Karakatva 🐍 भ्रम, विदेश, छल | Rahu Effects in Life, Illusions & Foreign Link](https://t.worldgyan.com/videos/LSyEXuXtDvY) | [Watch on YouTube](https://www.youtube.com/watch?v=LSyEXuXtDvY) |
 
 | 2025-06-24 | [14 | Ketu का Karakatva ⚡ मोक्ष, रहस्य, त्याग | Ketu in Vedic Astrology – Moksha & Spiritual Secrets](https://t.worldgyan.com/videos/QY6OjUjIUII) | [Watch on YouTube](https://www.youtube.com/watch?v=QY6OjUjIUII) |

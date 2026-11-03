@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-15 | [6 | Sun का Karakatva 🔥 | Health, Status, Father, Aatma | सूर्य के राजयोगीय गुण |  Sun Significations](https://t.worldgyan.com/videos/WP4Q2sVAyS0) | [Watch on YouTube](https://www.youtube.com/watch?v=WP4Q2sVAyS0) |
+
 | 2025-06-15 | [7 | Moon का Karakatva 🌙 Mind, Emotion, Mother | चंद्र के रहस्य | Vedic Astrology Insights](https://t.worldgyan.com/videos/_rRDNhOzrK8) | [Watch on YouTube](https://www.youtube.com/watch?v=_rRDNhOzrK8) |
 
 | 2025-06-16 | [8 | Mars का Karakatva 🔥 Courage, Blood, Energy | मंगल के प्रभाव | Vedic Astrology Explained](https://t.worldgyan.com/videos/P6RpPBdAJ8w) | [Watch on YouTube](https://www.youtube.com/watch?v=P6RpPBdAJ8w) |

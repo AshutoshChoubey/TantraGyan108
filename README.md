@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-08-01 | [29 | 🪐 Graha Movement & Mahadasha का रहस्य | Transit Time & Rashi Impact Explained in Hindi](https://t.worldgyan.com/videos/V9oX-zSZuXo) | [Watch on YouTube](https://www.youtube.com/watch?v=V9oX-zSZuXo) |
+
 | 2025-08-05 | [30 | Sun in Astrology ☀️ सूर्य कौन से Body Parts और Diseases का कारक है? | Medical Astrology](https://t.worldgyan.com/videos/qYjF-rEuCgU) | [Watch on YouTube](https://www.youtube.com/watch?v=qYjF-rEuCgU) |
 
 | 2025-08-06 | [31 | Moon in Astrology 🌙 चंद्रमा किन Body Parts और Diseases का कारक है? | Medical Astrology Guide](https://t.worldgyan.com/videos/p-7KIAbBMws) | [Watch on YouTube](https://www.youtube.com/watch?v=p-7KIAbBMws) |

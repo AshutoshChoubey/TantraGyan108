@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-07 | [19 | 5th House (Pancham Bhav) in Astrology 🎓 Love, Education, Children | संतान, प्रेम और Creativity](https://t.worldgyan.com/videos/iMjAwlsSnH4) | [Watch on YouTube](https://www.youtube.com/watch?v=iMjAwlsSnH4) |
+
 | 2025-07-10 | [20 | 6th House (Shatru Bhav) in Horoscope ⚔️ Enemies, Disease,  Loan and Daily routine  | छठा भाव](https://t.worldgyan.com/videos/wJyIVraEMxQ) | [Watch on YouTube](https://www.youtube.com/watch?v=wJyIVraEMxQ) |
 
 | 2025-07-11 | [21 | 7th House (Vivah Bhav) in Astrology 💍 Marriage, Love, Partnership | विवाह और संबंधों](https://t.worldgyan.com/videos/0GPOJEaq-cE) | [Watch on YouTube](https://www.youtube.com/watch?v=0GPOJEaq-cE) |

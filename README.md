@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-08-13 | [36 | Saturn in Astrology 🪐 शनि किन Body Parts और Diseases का कारण होता है? | Medical Astrology Facts](https://t.worldgyan.com/videos/q_tcUrGeLSI) | [Watch on YouTube](https://www.youtube.com/watch?v=q_tcUrGeLSI) |
+
 | 2025-08-15 | [37 | Venus in Astrology 💫 शुक्र किन Body Parts और Diseases से जुड़ा है? | Medical Astrology Guide](https://t.worldgyan.com/videos/0lM9q4rUkAg) | [Watch on YouTube](https://www.youtube.com/watch?v=0lM9q4rUkAg) |
 
 | 2025-08-16 | [38 | Jupiter in Astrology 📚 गुरु किन Body Parts और Diseases का कारक है? | Medical Astrology Secrets](https://t.worldgyan.com/videos/TBzeuevmtXE) | [Watch on YouTube](https://www.youtube.com/watch?v=TBzeuevmtXE) |

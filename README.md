@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-22 | [13 | Rahu का Karakatva 🐍 भ्रम, विदेश, छल | Rahu Effects in Life, Illusions & Foreign Link](https://t.worldgyan.com/videos/LSyEXuXtDvY) | [Watch on YouTube](https://www.youtube.com/watch?v=LSyEXuXtDvY) |
+
 | 2025-06-24 | [14 | Ketu का Karakatva ⚡ मोक्ष, रहस्य, त्याग | Ketu in Vedic Astrology – Moksha & Spiritual Secrets](https://t.worldgyan.com/videos/QY6OjUjIUII) | [Watch on YouTube](https://www.youtube.com/watch?v=QY6OjUjIUII) |
 
 | 2025-06-27 | [15  | 1st House (Lagna Bhav) Secrets  Personality, Health & Career | 1st house lord in 1 - 12 houses](https://t.worldgyan.com/videos/BTVHfpls1zQ) | [Watch on YouTube](https://www.youtube.com/watch?v=BTVHfpls1zQ) |

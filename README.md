@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-18 | [23 | 9th House in Astrology Explained | नवम भाव | Dharma, Luck , Dharma Bhav, Fortune, Religion](https://t.worldgyan.com/videos/XsOwLbB9HrM) | [Watch on YouTube](https://www.youtube.com/watch?v=XsOwLbB9HrM) |
+
 | 2025-07-20 | [24 | 10th House (Karma Bhav) in Astrology 🏆 Career, Status, Duty | कुंडली में दसवां भाव | Karma Bhav](https://t.worldgyan.com/videos/epHXLN4Qzu8) | [Watch on YouTube](https://www.youtube.com/watch?v=epHXLN4Qzu8) |
 
 | 2025-07-21 | [25 | 11th House (Labh Bhav) in Astrology 📈 Gains, Dreams, Network | कुंडली में लाभ भाव का रहस्य](https://t.worldgyan.com/videos/PZqFiEKTONU) | [Watch on YouTube](https://www.youtube.com/watch?v=PZqFiEKTONU) |

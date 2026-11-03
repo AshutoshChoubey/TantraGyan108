@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-25 | [27 |  💫 27 Nakshatra Secrets  | Nakshatra Lords Table | 27 Nakshatra Lords & Rashi Degrees 🌌](https://t.worldgyan.com/videos/oNvz598daZQ) | [Watch on YouTube](https://www.youtube.com/watch?v=oNvz598daZQ) |
+
 | 2025-07-27 | [28 | 💫 Planetary Drishti Explained | ग्रहों की दृष्टियाँ कैसे काम करती हैं? Mars, Jupiter, Saturn](https://t.worldgyan.com/videos/BmvglqALX0g) | [Watch on YouTube](https://www.youtube.com/watch?v=BmvglqALX0g) |
 
 | 2025-08-01 | [29 | 🪐 Graha Movement & Mahadasha का रहस्य | Transit Time & Rashi Impact Explained in Hindi](https://t.worldgyan.com/videos/V9oX-zSZuXo) | [Watch on YouTube](https://www.youtube.com/watch?v=V9oX-zSZuXo) |

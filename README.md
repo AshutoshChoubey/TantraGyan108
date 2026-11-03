@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-01 | [16 | Astrology  |  2nd House (Dhana Bhav) Explained 💰 Money, Family, Speech in hindi](https://t.worldgyan.com/videos/XvAPXL78fSk) | [Watch on YouTube](https://www.youtube.com/watch?v=XvAPXL78fSk) |
+
 | 2025-07-04 | [18 | 4th House (Chaturth Bhav) in Astrology 🏠 Home, Mother, Comforts | जानिए सुख  भाव](https://t.worldgyan.com/videos/8NYEoeObn-0) | [Watch on YouTube](https://www.youtube.com/watch?v=8NYEoeObn-0) |
 
 | 2025-07-07 | [19 | 5th House (Pancham Bhav) in Astrology 🎓 Love, Education, Children | संतान, प्रेम और Creativity](https://t.worldgyan.com/videos/iMjAwlsSnH4) | [Watch on YouTube](https://www.youtube.com/watch?v=iMjAwlsSnH4) |

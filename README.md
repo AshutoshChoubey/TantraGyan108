@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-08-06 | [31 | Moon in Astrology 🌙 चंद्रमा किन Body Parts और Diseases का कारक है? | Medical Astrology Guide](https://t.worldgyan.com/videos/p-7KIAbBMws) | [Watch on YouTube](https://www.youtube.com/watch?v=p-7KIAbBMws) |
+
 | 2025-08-07 | [32 | Mercury in Astrology 🧠 बुध किन Body Parts और Diseases का कारक है? | Medical Astrology Secrets](https://t.worldgyan.com/videos/xNa4YwiYpzk) | [Watch on YouTube](https://www.youtube.com/watch?v=xNa4YwiYpzk) |
 
 | 2025-08-08 | [33 | Mars in Astrology 🔥 मंगल किन Body Parts और Diseases का कारक है? | Medical Astrology Insights](https://t.worldgyan.com/videos/xcHJ7C_85RU) | [Watch on YouTube](https://www.youtube.com/watch?v=xcHJ7C_85RU) |

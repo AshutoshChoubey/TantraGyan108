@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-15 | [7 | Moon का Karakatva 🌙 Mind, Emotion, Mother | चंद्र के रहस्य | Vedic Astrology Insights](https://t.worldgyan.com/videos/_rRDNhOzrK8) | [Watch on YouTube](https://www.youtube.com/watch?v=_rRDNhOzrK8) |
+
 | 2025-06-16 | [8 | Mars का Karakatva 🔥 Courage, Blood, Energy | मंगल के प्रभाव | Vedic Astrology Explained](https://t.worldgyan.com/videos/P6RpPBdAJ8w) | [Watch on YouTube](https://www.youtube.com/watch?v=P6RpPBdAJ8w) |
 
 | 2025-06-18 | [9 | Venus का Karakatva 💫 Love, Art, Luxury | शुक्र किन चीज़ों का कारक है? Vedic Astrology Facts](https://t.worldgyan.com/videos/xGH1H-Kf53w) | [Watch on YouTube](https://www.youtube.com/watch?v=xGH1H-Kf53w) |

@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-21 | [25 | 11th House (Labh Bhav) in Astrology 📈 Gains, Dreams, Network | कुंडली में लाभ भाव का रहस्य](https://t.worldgyan.com/videos/PZqFiEKTONU) | [Watch on YouTube](https://www.youtube.com/watch?v=PZqFiEKTONU) |
+
 | 2025-07-24 | [26 | 12th House (Vyaya Bhav) in Astrology 🌌 Loss, Moksha, Foreign | कुंडली में व्यय भाव](https://t.worldgyan.com/videos/Ia7Mc3m4uuQ) | [Watch on YouTube](https://www.youtube.com/watch?v=Ia7Mc3m4uuQ) |
 
 | 2025-07-25 | [27 |  💫 27 Nakshatra Secrets  | Nakshatra Lords Table | 27 Nakshatra Lords & Rashi Degrees 🌌](https://t.worldgyan.com/videos/oNvz598daZQ) | [Watch on YouTube](https://www.youtube.com/watch?v=oNvz598daZQ) |

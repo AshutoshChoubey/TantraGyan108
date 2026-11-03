@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-08-23 | [41 | Cancer Rog ka Jyotish Rahasya 🔬 Vedic Astrology Analysis of Oncological Diseases | कैंसर के योग](https://t.worldgyan.com/videos/zYi_7welgQk) | [Watch on YouTube](https://www.youtube.com/watch?v=zYi_7welgQk) |
+
 | 2025-08-24 | [42 | Deeptadi Avastha Explained 🔯 | ग्रहों की स्थिति और 9 अवस्थाएं | Mooltrikona |  Planetary States](https://t.worldgyan.com/videos/dEkEGKvDPmE) | [Watch on YouTube](https://www.youtube.com/watch?v=dEkEGKvDPmE) |
 
 | 2026-04-18 | [Learn Astrology for Beginners – Complete Course Part 1 🔮 (5–29 Combined)](https://t.worldgyan.com/videos/VD03-YSvLa0) | [Watch on YouTube](https://www.youtube.com/watch?v=VD03-YSvLa0) |

@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-06-19 | [10 | Jupiter का Karakatva 📚 Knowledge, Guru, Fortune | बृहस्पति क्या दर्शाता है? Vedic Astrology](https://t.worldgyan.com/videos/MWIepi0l8f4) | [Watch on YouTube](https://www.youtube.com/watch?v=MWIepi0l8f4) |
+
 | 2025-06-20 | [11 | Saturn का Karakatva 🪐 कर्म, बाधा, समय | Shani's Deep Role in Karma, Struggles & Time](https://t.worldgyan.com/videos/0uYAj5inBF4) | [Watch on YouTube](https://www.youtube.com/watch?v=0uYAj5inBF4) |
 
 | 2025-06-20 | [12 | 🌿 बुध का Karakatva 🧠 बुद्धि, वाणी, तर्क | Mercury's Significations in Vedic Astrology](https://t.worldgyan.com/videos/NjHeXxa1BQQ) | [Watch on YouTube](https://www.youtube.com/watch?v=NjHeXxa1BQQ) |

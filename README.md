@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2025-07-20 | [24 | 10th House (Karma Bhav) in Astrology 🏆 Career, Status, Duty | कुंडली में दसवां भाव | Karma Bhav](https://t.worldgyan.com/videos/epHXLN4Qzu8) | [Watch on YouTube](https://www.youtube.com/watch?v=epHXLN4Qzu8) |
+
 | 2025-07-21 | [25 | 11th House (Labh Bhav) in Astrology 📈 Gains, Dreams, Network | कुंडली में लाभ भाव का रहस्य](https://t.worldgyan.com/videos/PZqFiEKTONU) | [Watch on YouTube](https://www.youtube.com/watch?v=PZqFiEKTONU) |
 
 | 2025-07-24 | [26 | 12th House (Vyaya Bhav) in Astrology 🌌 Loss, Moksha, Foreign | कुंडली में व्यय भाव](https://t.worldgyan.com/videos/Ia7Mc3m4uuQ) | [Watch on YouTube](https://www.youtube.com/watch?v=Ia7Mc3m4uuQ) |

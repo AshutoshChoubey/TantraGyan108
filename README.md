@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2026-11-05 | [45 | Pushya Nakshatra Complete Breakdown 🔮 | All Planets, Padas & Navamsa Explained](https://t.worldgyan.com/videos/V9sVYfYKleA) | [Watch on YouTube](https://www.youtube.com/watch?v=V9sVYfYKleA) |
+
 | 2025-05-26 | [17 | 3rd House (Parakram Bhav) in Astrology ⚔️ Courage, Siblings, Efforts | साहस का घर](https://t.worldgyan.com/videos/R1utvGtTbrc) | [Watch on YouTube](https://www.youtube.com/watch?v=R1utvGtTbrc) |
 
 | 2025-06-15 | [5 |  All 12 Rashi Explained | राशि का राज | 12 राशियों के तत्व, स्वामी और गुण | All Zodiac Signs](https://t.worldgyan.com/videos/MctNJ73fcDI) | [Watch on YouTube](https://www.youtube.com/watch?v=MctNJ73fcDI) |

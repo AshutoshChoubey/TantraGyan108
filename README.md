@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2026-04-25 | [44 | The Dark & Divine Side of Ashlesha Nakshatra | 4 Padas + Planet Analysis](https://t.worldgyan.com/videos/VBtmJCzAO20) | [Watch on YouTube](https://www.youtube.com/watch?v=VBtmJCzAO20) |
+
 | 2026-11-05 | [43 | Ashwini Nakshatra Secrets: 4 Padas, Navamsa Lords & Hidden Traits](https://t.worldgyan.com/videos/bRRxlOURCKk) | [Watch on YouTube](https://www.youtube.com/watch?v=bRRxlOURCKk) |
 
 | 2026-11-05 | [Ashlesha Nakshatra Deep Dive: Sagittarius–Pisces Padas & Real Meaning](https://t.worldgyan.com/videos/wEUqDZb0HIs) | [Watch on YouTube](https://www.youtube.com/watch?v=wEUqDZb0HIs) |

@@ -3,6 +3,8 @@
 | Date | Title | Watch |
 | :--- | :--- | :--- |
 <!-- VIDEOS_TABLE_START -->
+| 2026-11-05 | [43 | Ashwini Nakshatra Secrets: 4 Padas, Navamsa Lords & Hidden Traits](https://t.worldgyan.com/videos/bRRxlOURCKk) | [Watch on YouTube](https://www.youtube.com/watch?v=bRRxlOURCKk) |
+
 | 2026-11-05 | [Ashlesha Nakshatra Deep Dive: Sagittarius–Pisces Padas & Real Meaning](https://t.worldgyan.com/videos/wEUqDZb0HIs) | [Watch on YouTube](https://www.youtube.com/watch?v=wEUqDZb0HIs) |
 
 | 2026-11-05 | [45 | Pushya Nakshatra Complete Breakdown 🔮 | All Planets, Padas & Navamsa Explained](https://t.worldgyan.com/videos/V9sVYfYKleA) | [Watch on YouTube](https://www.youtube.com/watch?v=V9sVYfYKleA) |
